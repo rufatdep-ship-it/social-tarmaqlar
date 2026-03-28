@@ -9,3 +9,4 @@ Házirgi maqsetim:
 * 🦈 Pull Shark nıshonın alıw
 
 *Alg'a, Qaraqalpaqstan dastúrshileri!* 🇺🇿🖥️
+
